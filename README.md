@@ -1,0 +1,1 @@
+# yamaguchi-smart-city
